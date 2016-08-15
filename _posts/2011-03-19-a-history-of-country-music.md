@@ -1,0 +1,18 @@
+---
+id: 442
+title: A History Of Country Music
+date: 2011-03-19T00:00:00+00:00
+author: admin
+layout: post
+guid: http://www.trajedybeatz.com/?p=442
+permalink: /2011/03/19/a-history-of-country-music/
+categories:
+  - Uncategorized
+---
+Musicians have long been playing fiddle music in the Appalachians for years, but it wasn’t until 1927 in Bristol, Tennessee that the first recording country music recording deal was signed. In this year, Victor Records signed Jimmie Rodgers and the Carter Family.
+
+Jimmie Rodgers was born in Meridian Mississippi, in 1897. Originally he worked on the railroads until his ill health got the better of him and it was only during this time that he followed his earlier love of entertaining. In 1927 he followed word that Victor Records were setting up a portable recording studio and made his way there. He was immediately signed and continued recording and playing music until he died in 1933.
+
+In 1965 he was one of the very first musicians to be added to the Country Music Hall of Fame in 1961 along with Hank Williams and Fred Rose. On the same day as Jimmie Rodgers signed with Victor Records, so did the Carter Family, who would become one of the most famous country music bands of all time. They remained with Victor Records until 1936. Not even divorce could separate the band though and they continued to record with Decca until 1939. Things started to hit a rough patch at this stage and despite signing for Universal and eventually Victor Records again, the band split in 1941.
+
+It is widely acknowledged that that big day in 1927 was the introduction of country music to the rest of the country. Jimmie Rodgers and the Carter Family were met with huge critical acclaim and became incredibly popular helping to sell a great many records. Country music singers and bands of today will often talk about the Carter Family or Jimmie Rodgers as being their major influence and with very good reason.

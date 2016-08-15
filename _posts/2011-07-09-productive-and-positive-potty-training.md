@@ -1,0 +1,24 @@
+---
+id: 582
+title: Productive and Positive Potty Training
+date: 2011-07-09T00:00:00+00:00
+author: admin
+layout: post
+guid: http://www.trajedybeatz.com/?p=582
+permalink: /2011/07/09/productive-and-positive-potty-training/
+categories:
+  - Uncategorized
+---
+Your child&#8217;s showing all the signs of being ready to potty train. That&#8217;s great! But now, where do you start? 
+
+Explain to your toddler that going potty is a normal process of life and everyone does it, even animals. Talk with them about the toilet, a special place where they can potty just like the big kids. Tell him how the potty works and let him try flushing himself. Explain that they will be wearing underwear and not diapers. Find some educational and entertaining videos of their favorite characters learning to go potty. Be sure to involve other family members in the process and emphasize the importance of consistency during this process. 
+
+Make a special trip to the store and purchase new underwear with your toddler. Let them have a voice in what you get. The underwear will have much more significance if your toddler helped choose them.
+  
+Overalls, pants with lots of buttons, snaps or zips, tight or restrictive clothing and oversized shirts will all be an obstacle to your child during this process. Put these kinds of clothes away for the time being. 
+
+Decide whether or not you&#8217;re going to use pull-ups, training pants or regular underwear and try to stick with this decision so your child has consistency and isn&#8217;t confused. Think about whether or not you want to use rewards or not. Figure out a strategy on how to handle potty issues when you&#8217;re away from home. 
+
+If your child is in child care, ask your provider for their advice and make sure there aren&#8217;t any hard and fast rules the center or caregiver has in place that may be an issue. Let them know that you&#8217;re going to start and enlist their help with the process. 
+
+Praise your child for each successful trip to the potty, and comfort them when accidents happen and try to remain patient and calm when they do. Avoid using candy or other treats as reinforcement. Let them know that it will take a while to get the hang of using the potty, and encourage and praise each attempt they make. With consistency, encouragement and praise, they&#8217;ll soon be completely trained.

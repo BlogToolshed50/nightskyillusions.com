@@ -1,0 +1,18 @@
+---
+id: 1966
+title: Global Warming is a Reality in the Arctic
+date: 2012-11-26T05:26:19+00:00
+author: admin
+layout: post
+guid: http://www.nightskyillusions.com/?p=1966
+permalink: /2012/11/26/global-warming-is-a-reality-in-the-arctic/
+categories:
+  - General
+---
+Global warming which is responsible for the fast changing climate around the world can soon make the Arctic as we know it a thing of the past. A research team led by Penn State University documented a number of responses of both plant and animals to the trend of global warming. The researchers found that the increase in the arctic temperature over the last one and a half centuries have led to some dramatic effects on a global scale. For instance within the last three decades or so the seasonal minimal ice at sea has declined by around 45,000 square kilometers annually. Also the amount of terrestrial snow that covers the region has also slowly declined thanks to earlier melting of snow and breaking up during the start of the season which has a global effect.
+
+The global effect of global warming hits the animals and plants living in the Arctic Circle the most. These species are purely dependent on the cold and the sea ice. Without the ice these species are going to be lost forever. The fact that the polar habitat is slowly slipping away can be seen in examples of ivory gull, ringed seals, pacific walruses and hooded seals etc. whose numbers are slowly declining. The research showed that both ringed seals and polar bears that give birth under caves or lairs of snow often loose their newborns because of their lair collapsing which is early for the spring rains. This is what is pushing the species towards inevitable extinction.
+
+Our global carbon dioxide production in the southern ranges are now moving northwards. The new invaders from the north are the red fox which are chasing away the arctic foxes from their territories because its not too cold to keep the red fox away. The winter moth has also started making its way, this moth is responsible for defoliates mountains and trees and shrubs which in effect affects the mechanism of the trace-gas. Now the more shrubs and trees there are the deeper will be the snow accumulation which increases the temperatures of the soil during winter and hence promotes more microbial activity within the soil which then makes the area even more suitable for shrubs. So when there is more shrub cover it can lengthen the duration in which the tundra acts like a sort of carbon-dioxide type sink this also effects us on a global scale.
+
+However the factors countering global warming change are musk oxen as well as reindeer which often browse on these shrubs which deceases their capacity to soak carbon and its northern movement towards the High Arctic. Now when these herbivores trample, graze and defecate they are actually promoting the growth and spread of various grasses which help to attract geese. The geese then further affect and increase the productivity of the lakes where they graze and rest. According to the research the web of complex marine and aquatic food makes the habitat extremely venerable to any alteration either by change in temperature, nutrient load, and precipitation etc. So the problem needs to be tackled on a global scale. The long term global effects of this change needs to be noticed and action needs to be taken. Everything we see happening in the arctic has a global effect.
