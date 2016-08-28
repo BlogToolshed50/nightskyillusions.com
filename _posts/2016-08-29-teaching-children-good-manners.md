@@ -5,7 +5,7 @@ layout: post
 categories:
   - General
 ---
-Last week in my newsletter, I mentioned that my children knew how to behave in nice restaurants because they had been exposed to the atmosphere at an early age. My idea of well behaved might be different from yours, however, I think there are certain basics that are important and universal.
+Last week, I mentioned that my children knew how to behave in nice restaurants because they had been exposed to the atmosphere at an early age. My idea of well behaved might be different from yours, however, I think there are certain basics that are important and universal.
 
 When my daughters were babies, we would take them wherever we went. If they began to fuss or cry, one of us would promptly remove them from the room/restaurant/market/wherever. Not because we felt their crying or fussing was a bad thing. No, it's a perfectly normal occurrence for infants and toddlers. We removed them as a courtesy to others who we felt did not need to be as tolerant as we were with our children's noise. In consequence, my daughters know that other people are not as wildly in love with their racket or with them as we are. Nor should they be expected to be.
 
